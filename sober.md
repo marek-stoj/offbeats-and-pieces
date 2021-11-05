@@ -1,0 +1,3 @@
+How does this song relate to me? Or how do I relate myself to this song? Let's give it a go.
+
+Addiction, alcoholism - these are some obvious meanings. What if we talk about "an addiction" to authority. A relation betwixt a son and his father. A relation between me and my Dad. Why did I feel the urge to write His name in capital letter? 🤔 Because in my mind, in a boy's mind, his Father is the God...
