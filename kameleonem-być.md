@@ -1,6 +1,4 @@
-```
-// TODO: write the actual thing 😅
-```
+![Kameleonem Być](art/IMG_0281.HEIC)
 
 ```
 Powyższe dedykuję "Drago",
