@@ -1,4 +1,4 @@
-![Kameleonem Być](art/IMG_0281.HEIC)
+![Kameleonem Być](art/IMG_0281.jpg)
 
 ```
 Powyższe dedykuję "Drago",
